@@ -1,4 +1,2 @@
 # ihateminorities
-i really dont, just funnies.
-website at http://ihateminorities.org/ 
-5123. :)
+website at http://ihateminorities.org/
